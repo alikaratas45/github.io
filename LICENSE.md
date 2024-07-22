@@ -1,0 +1,1 @@
+lisans bana aittir
